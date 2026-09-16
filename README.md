@@ -1,0 +1,1 @@
+ayaw kalimot og pautog
